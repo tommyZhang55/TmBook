@@ -6,5 +6,4 @@ You can scan my payment code to support my project.
 
 Thx
 
-![微信图片_20230912000133](https://github.com/tommyZhang55/TmBook/assets/142772771/7f184fe0-848a-4fc8-840a-56072d388696)
-
+![微信图片_20230912000133](https://github.com/tommyZhang55/TmBook/assets/142772771/7d9f1a87-f79a-4c4d-9547-9c6b6fcd4582)
